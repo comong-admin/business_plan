@@ -8,3 +8,16 @@
 
 ## 여행 액티비티
 1. [klook](https://www.klook.com/ko/experiences/city-mcate/157-24-gyeonggi-do-culture-workshops/)
+2. [WAUG](https://www.waug.com/ko/goods/103814)
+
+
+## 참고
+
+1. [인스타그램 - 스퀘어룰](https://www.instagram.com/squarerule/?hl=ko)
+2. [네이버예약 - FELIX WOOD STUDIO](https://search.naver.com/search.naver?where=nexearch&sm=top_hty&fbm=1&ie=utf8&query=Felix+wood+studio)
+3. [인스타그램 - FELIX WOOD STUDIO](https://www.instagram.com/roowalix/)
+
+
+## 중요
+1. [네이버스마트플레이스](https://smartplace.naver.com/businesses/607b7a54496e214e02dae63f/edit?step=basic)
+2. [네이버예약 파트너센터](https://partner.booking.naver.com/bizes/561938/biz-items)
